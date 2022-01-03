@@ -2,7 +2,8 @@
 - 👀 I’m interested in hentai
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on e girls
-- 📫 How to reach me just dm me on discord 四谷みこ#2971
+- 📫 How to reach me just dm me on discord 四谷みこ#0001
+- I am based
 
 <!---
 MikoYotsuya/MikoYotsuya is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
