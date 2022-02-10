@@ -2,7 +2,7 @@
 - 👀 I’m interested in hentai
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on e girls
-- 📫 How to reach me just dm me on discord 四谷みこ#6307
+- 📫 How to reach me just dm me on discord NinjaFromD4DJ#6307
 - I am based
 
 <!---
